@@ -1,0 +1,2 @@
+# wszechobecny-
+Aby do przodu 
